@@ -1,10 +1,10 @@
 ## Ingredients
-- 2l box of ice cream
+- 2 l box of ice cream
 - Chocolate or jam sauce
-- almonds, hazelnuts or walnuts
+- Almonds, hazelnuts or walnuts
 
 
 ## Instructions
-- hack nuts into tiny bits 
+- Hack nuts into tiny bits 
 - Serve portions of ice in large glasses or on glass plates
-- garnish with sauce and nuts
+- Garnish with sauce and nuts
